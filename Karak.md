@@ -1,1 +1,4 @@
+-Karak
+-1 cups of water
 -add tea, milk, caradmom, anything
+-pinch of saffron 
